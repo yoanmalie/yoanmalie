@@ -1,4 +1,4 @@
-![Yoan Malié's banner](https://yoan-malie.fr/content/yoan-malie-portfolio.jpg?v=1 "Yoan Malié")
+![Yoan Malié's banner](https://yoan-malie.fr/banner-gh-profile.jpg?v=1 "Yoan Malié")
 
 ### Hello 👋
 
