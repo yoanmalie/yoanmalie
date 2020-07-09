@@ -1,3 +1,5 @@
+![Yoan Malié's banner](https://yoan-malie.fr/content/yoan-malie-portfolio.jpg?v=1 "Yoan Malié")
+
 ### Hello 👋
 
 
